@@ -1,1 +1,1 @@
-*Travel is the **best** school**
+*Travel is the **best** school*
